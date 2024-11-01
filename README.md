@@ -1,16 +1,13 @@
-## Hi there 👋
+# **Boas-Vindas ao meu perfil!!**
 
-<!--
-**TweekDoe/TweekDoe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_Meu nome é Talita, sou uma estudante do primeiro ano do ensino médio_
 
-Here are some ideas to get you started:
+🖤 🐈 🖤 🐱 🖤 🐈‍⬛ 🖤
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://media1.tenor.com/m/UC4lMDNLYXMAAAAd/miau-adobe-after-effects-glass-breaking-default-preset.gif)
+
+Atualmente estou focada em estudar linguagens e artes visuais
+
+(Não sei o que colocar no meu perfil :D)
+
+![](https://media1.tenor.com/m/mwXBI6CY9l8AAAAd/cat-shocked.gif)
